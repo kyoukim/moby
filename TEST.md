@@ -1,0 +1,1 @@
+stephen.kim@oracle.com Daejeon, Korea
